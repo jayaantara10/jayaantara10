@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Jaya Antara
+- 👀 I’m interested in Software, Website and game Developer
+- 🌱 I’m currently learning Sofetware Developer
